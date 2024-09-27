@@ -1,4 +1,4 @@
-── .✦ INTRO ✦. ──
+── .✦ INTRO ✦. ──</br> </br>
 name : Diego Elias (ppls that know me irl can keep using the name I introduced myself with btw o7) </br>
 age  :  16 </br>
 prns :  he/him (same as name - just don't feel safe with that yet) </br>
